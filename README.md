@@ -1,0 +1,2 @@
+# janganlupangopi
+iseng aje
